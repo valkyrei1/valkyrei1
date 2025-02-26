@@ -1,4 +1,5 @@
 <a href="https://hits.sh/github.com/valkyrei/"><img alt="Hits" src="https://hits.sh/github.com/valkyrei.svg?style=plastic&label=views&color=555555&logo=4chan"/></a>
+
 <img src="https://media1.tenor.com/m/VR0K7_RCFCkAAAAC/jujutsu-kaisen-jujutsukaisen.gif" alt="Nature" />
 
 <!--
