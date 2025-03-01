@@ -2,6 +2,10 @@
 
 <img src="https://media1.tenor.com/m/VR0K7_RCFCkAAAAC/jujutsu-kaisen-jujutsukaisen.gif" alt="Nature" />
 
+NEW
+
+<a href="https://info.flagcounter.com/b6ya"><img src="https://s01.flagcounter.com/count/b6ya/bg_4F525E/txt_FAFAFA/border_FFFFFF/columns_2/maxflags_6/viewers_profile+visits/labels_0/pageviews_1/flags_0/percent_0/" alt="Flag Counter" border="0"></a>
+
 <!--
 **valkyrei1/valkyrei1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
