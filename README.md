@@ -1,7 +1,11 @@
 <a href="https://hits.sh/github.com/valkyrei/"><img alt="Hits" src="https://hits.sh/github.com/valkyrei.svg?style=plastic&label=views&color=555555&logo=4chan"/></a>
 
 
-https://github.com/user-attachments/assets/494c865d-727d-4d81-bcfb-923494e47f5c
+https://github.com/user-attachments/assets/3e219867-a3f0-42b5-9906-2689074c8c73
+
+
+
+
 
 my work btw!1
 
