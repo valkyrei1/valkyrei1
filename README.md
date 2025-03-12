@@ -1,11 +1,10 @@
 <a href="https://hits.sh/github.com/valkyrei/"><img alt="Hits" src="https://hits.sh/github.com/valkyrei.svg?style=plastic&label=views&color=555555&logo=4chan"/></a>
 
-𝚖𝚢 𝚠𝚘𝚛𝚔, 𝚍𝚘 𝚗𝚘𝚝 𝚛𝚎𝚞𝚙𝚕𝚘𝚊𝚍
 
  ![giphy](https://github.com/user-attachments/assets/b09d365d-b309-461d-aac4-4f78751b0434)
 
 
-
+𝚖𝚢 𝚠𝚘𝚛𝚔, 𝚍𝚘 𝚗𝚘𝚝 𝚛𝚎𝚞𝚙𝚕𝚘𝚊𝚍
 
 
 
