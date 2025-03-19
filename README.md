@@ -1,7 +1,6 @@
 <a href="https://hits.sh/github.com/valkyrei/"><img alt="Hits" src="https://hits.sh/github.com/valkyrei.svg?style=plastic&label=views&color=555555&logo=4chan"/></a>
 
 
- ![giphy](https://github.com/user-attachments/assets/b09d365d-b309-461d-aac4-4f78751b0434)
 ![download (1)](https://github.com/user-attachments/assets/44f18b49-ac5a-4934-9e9d-def84ec94091)
 
 
