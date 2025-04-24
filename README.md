@@ -1,5 +1,7 @@
 <a href="https://hits.sh/github.com/valkyrei/"><img alt="Hits" src="https://hits.sh/github.com/valkyrei.svg?style=plastic&label=views&color=555555&logo=4chan"/></a>
 
+ʜɪ!! ɪ'ᴍ ᴀᴡᴀʀᴇ ɪ'ᴠᴇ ᴀᴘᴘᴇᴀʀᴇᴅ ᴛᴡɪᴄᴇ ɪɴ ɢᴏ5ʏᴜᴜ'ꜱ ꜱᴛʀᴀᴡᴘᴀɢᴇ, ꜰᴏʀ ᴀɴʏ ᴍɪꜱᴜɴᴅᴇʀꜱᴛᴀɴᴅɪɴɢ ɪ ᴅɪᴅɴᴛ ʀᴇᴀʟɪꜱᴇ ᴛʜᴇʏ ᴡᴇʀᴇ ᴀ ᴘʀᴏꜱʜɪᴘᴘᴇʀ ᴜɴᴛɪʟ ɪ ꜰɪɴɪꜱʜᴇᴅ ᴍʏ ʟᴀꜱᴛ ᴅʀᴀᴡɪɴɢ </3
+
 𝗺𝘂𝗹𝘁𝗶𝘀𝗵𝗶𝗽𝗽𝗲𝗿! 𝗇𝖺𝗇𝖺𝗀𝗈, 𝗌𝖺𝗍𝗈𝗌𝗎𝗀𝗎, 𝖯𝖫𝖠𝖳𝖮𝖭𝖨𝖢 𝗌𝖺𝗄𝗎𝗀𝗈, 𝗂𝗍𝖺𝖿𝗎𝗌𝗁𝗂, 𝗇𝗈𝖻𝖺𝗆𝖺𝗄𝗂, 𝗂𝗇𝗎𝗈𝗄𝗄𝗈
 
 ![download (1)](https://github.com/user-attachments/assets/44f18b49-ac5a-4934-9e9d-def84ec94091)
