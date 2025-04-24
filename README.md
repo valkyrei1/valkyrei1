@@ -2,7 +2,7 @@
 
 ʜɪ!! ɪ'ᴍ ᴀᴡᴀʀᴇ ɪ'ᴠᴇ ᴀᴘᴘᴇᴀʀᴇᴅ ᴛᴡɪᴄᴇ ɪɴ ɢᴏ5ʏᴜᴜ'ꜱ ꜱᴛʀᴀᴡᴘᴀɢᴇ, ꜰᴏʀ ᴀɴʏ ᴍɪꜱᴜɴᴅᴇʀꜱᴛᴀɴᴅɪɴɢ ɪ ᴅɪᴅɴᴛ ʀᴇᴀʟɪꜱᴇ ᴛʜᴇʏ ᴡᴇʀᴇ ᴀ ᴘʀᴏꜱʜɪᴘᴘᴇʀ ᴜɴᴛɪʟ ɪ ꜰɪɴɪꜱʜᴇᴅ ᴍʏ ʟᴀꜱᴛ ᴅʀᴀᴡɪɴɢ </3
 
-𝗺𝘂𝗹𝘁𝗶𝘀𝗵𝗶𝗽𝗽𝗲𝗿! 𝗇𝖺𝗇𝖺𝗀𝗈, 𝗌𝖺𝗍𝗈𝗌𝗎𝗀𝗎, 𝖯𝖫𝖠𝖳𝖮𝖭𝖨𝖢 𝗌𝖺𝗄𝗎𝗀𝗈, 𝗂𝗍𝖺𝖿𝗎𝗌𝗁𝗂, 𝗇𝗈𝖻𝖺𝗆𝖺𝗄𝗂, 𝗂𝗇𝗎𝗈𝗄𝗄𝗈
+⤹𝗺𝘂𝗹𝘁𝗶𝘀𝗵𝗶𝗽𝗽𝗲𝗿! 𝗇𝖺𝗇𝖺𝗀𝗈, 𝗌𝖺𝗍𝗈𝗌𝗎𝗀𝗎, 𝖯𝖫𝖠𝖳𝖮𝖭𝖨𝖢 𝗌𝖺𝗄𝗎𝗀𝗈, 𝗂𝗍𝖺𝖿𝗎𝗌𝗁𝗂, 𝗇𝗈𝖻𝖺𝗆𝖺𝗄𝗂, 𝗂𝗇𝗎𝗈𝗄𝗄𝗈
 
 <a href="https://www.tiktok.com/@valkyrei__">tiktok</a> <a href="https://character.ai/profile/distariouss">cai</a> <a href="https://janitorai.com/profiles/7e68c6a0-b6fd-43a0-b5a2-4a3e9a9efead_profile-of-valkyrei">janitorai</a>
 
