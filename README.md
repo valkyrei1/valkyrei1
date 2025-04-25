@@ -9,7 +9,10 @@
 ![download (1)](https://github.com/user-attachments/assets/44f18b49-ac5a-4934-9e9d-def84ec94091)
 <img src="[paris.jpg](https://github.com/user-attachments/assets/44f18b49-ac5a-4934-9e9d-def84ec94091)" class="center">
 
-𝚖𝚢 𝚠𝚘𝚛𝚔, 𝚍𝚘 𝚗𝚘𝚝 𝚛𝚎𝚞𝚙𝚕𝚘𝚊𝚍
+𝚖𝚢 𝚠𝚘𝚛𝚔, 𝚍𝚘 𝚗𝚘𝚝 𝚛𝚎𝚞𝚙𝚕𝚘𝚊𝚍 (both gif and video)
+
+
+https://github.com/user-attachments/assets/def45601-3409-485d-939f-9882fa581d7f
 
 
 
