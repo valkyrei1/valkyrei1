@@ -7,13 +7,11 @@
 
 ⠀ ⠀ ⠀ᨑ <a href="https://www.tiktok.com/@valkyrei__">tiktok</a> <a href="https://character.ai/profile/distariouss">cai</a> <a href="https://janitorai.com/profiles/7e68c6a0-b6fd-43a0-b5a2-4a3e9a9efead_profile-of-valkyrei">janitorai</a>⠀⠀⁔ ⟢
 
-![download (1)](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExNzNqazhuOXZpMjU0bG9xNmNnc2lmOHV1bmVzc2J3OHF5amxpZXBhcyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/hKHlfl5QcuJ8BWEFyR/giphy.gif)
+![download (1)](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExbG11bHN6enBxZnh6Y2gydTg4eTFodjJuN2tiOHF5cmhhOWswbDd3bSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/pifr6l9MgiptiXMQxS/giphy.gif)
 <img src="[paris.jpg](https://github.com/user-attachments/assets/44f18b49-ac5a-4934-9e9d-def84ec94091)" class="center">
 
 𝚖𝚢 𝚠𝚘𝚛𝚔, 𝚍𝚘 𝚗𝚘𝚝 𝚛𝚎𝚞𝚙𝚕𝚘𝚊𝚍 (both gif and video)
 
-
-https://github.com/user-attachments/assets/def45601-3409-485d-939f-9882fa581d7f
 
 
 
