@@ -10,7 +10,7 @@
 ![download (1)](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExbG11bHN6enBxZnh6Y2gydTg4eTFodjJuN2tiOHF5cmhhOWswbDd3bSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/pifr6l9MgiptiXMQxS/giphy.gif)
 <img src="[paris.jpg](https://github.com/user-attachments/assets/44f18b49-ac5a-4934-9e9d-def84ec94091)" class="center">
 
-𝚖𝚢 𝚠𝚘𝚛𝚔, 𝚍𝚘 𝚗𝚘𝚝 𝚛𝚎𝚞𝚙𝚕𝚘𝚊𝚍 (both gif and video)
+𝚖𝚢 𝚠𝚘𝚛𝚔, 𝚍𝚘 𝚗𝚘𝚝 𝚛𝚎𝚞𝚙𝚕𝚘𝚊𝚍
 
 
 
