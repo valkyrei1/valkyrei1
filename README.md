@@ -1,7 +1,6 @@
 <a href="https://hits.sh/github.com/valkyrei/"><img alt="Hits" src="https://hits.sh/github.com/valkyrei.svg?style=plastic&label=views&color=555555&logo=4chan"/></a>
 
 
-⠀꒰ <a href="https://cdn.discordapp.com/attachments/1346606887264850042/1367172148531167252/Screenshot_20250430-171108.png?ex=68144689&is=6812f509&hm=ae25d66f88876309fdae1f678a4a613bdd14c72a1356ee090c096c43cdc49d5e&">view current art wip</a> ꒱  ⠀ updated whenever possible"⠀. 
 
 ⠀ ⠀ ⤹𝗺𝘂𝗹𝘁𝗶𝘀𝗵𝗶𝗽𝗽𝗲𝗿.ᐣ.ᐟ ⁿᵃⁿᵃᵍᵒ,ˢᵃᵗᵒˢᵘᵍᵘ,ᴾᴸᴬᵀᴼᴺᴵᶜ ˢᵃᵏᵘᵍᵒ,ⁱᵗᵃᶠᵘˢʰⁱ,ˢʰᵒᵏᵒʰⁱᵐᵉ,ⁿᵒᵇᵃᵐᵃᵏⁱ
 
