@@ -1,3 +1,5 @@
+![cooltext483916313581367](https://github.com/user-attachments/assets/d7b032fb-c673-449e-8c03-c6972219de57)
+
 <a href="https://hits.sh/github.com/valkyrei/"><img alt="Hits" src="https://hits.sh/github.com/valkyrei.svg?style=plastic&label=views&color=555555&logo=4chan"/></a>
 
 
