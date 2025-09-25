@@ -1,4 +1,6 @@
-wall of shame
+wall of shame (why does the SAME pony keep getting copied)
+
+
 ![Screenshot_2025-09-24_11](https://github.com/user-attachments/assets/89402453-b949-423b-8a64-31f39968f40b)
 
 <a href="https://hits.sh/github.com/valkyrei/"><img alt="Hits" src="https://hits.sh/github.com/valkyrei.svg?style=plastic&label=views&color=555555&logo=4chan"/></a>
