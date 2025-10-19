@@ -4,12 +4,13 @@
 
 
 
-⠀ ⠀ ⤹𝗺𝘂𝗹𝘁𝗶𝘀𝗵𝗶𝗽𝗽𝗲𝗿.ᐣ.ᐟ ⁿᵃⁿᵃᵍᵒ,ˢᵃᵗᵒˢᵘᵍᵘ,ᴾᴸᴬᵀᴼᴺᴵᶜ ˢᵃᵏᵘᵍᵒ,ⁱᵗᵃᶠᵘˢʰⁱ,ˢʰᵒᵏᵒʰⁱᵐᵉ,ⁿᵒᵇᵃᵐᵃᵏⁱ
+⠀ ⠀ ⤹𝗺𝘂𝗹𝘁𝗶fandom.ᐣ.ᐟ ᴊᴊᴋ, ᴅᴏᴅ, ᴄʀᴋ, ꜰᴏʀꜱᴀᴋᴇɴ, ᴛʀᴜᴅ
 
 ⠀ ⠀ ⠀ᨑ <a href="https://www.tiktok.com/@valkyrei__">tiktok</a> <a href="https://character.ai/profile/distariouss">cai</a> <a href="https://janitorai.com/profiles/7e68c6a0-b6fd-43a0-b5a2-4a3e9a9efead_profile-of-valkyrei">janitorai</a>⠀⠀⁔ ⟢
 
-![download (1)](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExbG11bHN6enBxZnh6Y2gydTg4eTFodjJuN2tiOHF5cmhhOWswbDd3bSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/pifr6l9MgiptiXMQxS/giphy.gif)
-<img src="[paris.jpg](https://github.com/user-attachments/assets/44f18b49-ac5a-4934-9e9d-def84ec94091)" class="center">
+<img width="942" height="1080" alt="static-assets-upload10928910671932554986" src="https://github.com/user-attachments/assets/b4a861cc-cb5c-47d5-bf47-0b79aed3f27f" />
+
+
 
 𝚖𝚢 𝚠𝚘𝚛𝚔, 𝚍𝚘 𝚗𝚘𝚝 𝚛𝚎𝚞𝚙𝚕𝚘𝚊𝚍
 
