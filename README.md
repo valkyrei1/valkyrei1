@@ -12,7 +12,6 @@
 
 
 
-𝚖𝚢 𝚠𝚘𝚛𝚔, 𝚍𝚘 𝚗𝚘𝚝 𝚛𝚎𝚞𝚙𝚕𝚘𝚊𝚍
 
 wall of shame (why does the SAME pony keep getting copied)
 
