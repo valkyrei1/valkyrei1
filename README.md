@@ -4,34 +4,10 @@
 
 
 
-⠀ ⠀ ⤹𝗺𝘂𝗹𝘁𝗶fandom.ᐣ.ᐟ ᴊᴊᴋ, ᴅᴏᴅ, ᴄʀᴋ, ꜰᴏʀꜱᴀᴋᴇɴ, ᴛʀᴜᴅ
+⠀ ⠀ ⤹i luv dod.ᐣ.ᐟ
 
 ⠀ ⠀ ⠀ᨑ <a href="https://www.tiktok.com/@valkyrei__">tiktok</a> <a href="https://character.ai/profile/distariouss">cai</a> <a href="https://janitorai.com/profiles/7e68c6a0-b6fd-43a0-b5a2-4a3e9a9efead_profile-of-valkyrei">janitorai</a>⠀⠀⁔ ⟢
 
-<img width="942" height="1080" alt="static-assets-upload10928910671932554986" src="https://github.com/user-attachments/assets/b4a861cc-cb5c-47d5-bf47-0b79aed3f27f" />
+<img width="420" height="420" alt="0838099bd13936ec4df4d3d7efb8e5c0-removebg-preview" src="https://github.com/user-attachments/assets/2e1499a2-76e5-46ff-8b00-e05e63eaae46" />
+<img width="559" height="447" alt="e85616ce1adb00042e0e5d992ec25305-removebg-preview" src="https://github.com/user-attachments/assets/2071f235-f94b-4028-922a-b995dd5145ad" />
 
-
-
-
-wall of shame (why does the SAME pony keep getting copied)
-
-
-![Screenshot_2025-09-24_11](https://github.com/user-attachments/assets/89402453-b949-423b-8a64-31f39968f40b)
-
-
-
-
-<!--
-**valkyrei1/valkyrei1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
